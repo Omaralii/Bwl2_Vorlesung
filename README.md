@@ -1,0 +1,1 @@
+# Bwl2_Vorlesung
